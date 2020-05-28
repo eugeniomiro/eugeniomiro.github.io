@@ -6,7 +6,7 @@ date: 2020-05-28
 Este es un libro que escribió mi mamá, es decir, son los manuscritos de un libro, en el que cuenta su vida y la de su familia. Mi idea es transcribir su contenido pero también que estén las páginas originales a la vista.
 
 Página 1:
-<img src="/assets/images/libro mamá/WhatsApp Image 2020-05-28 at 18.24.26.jpeg" />
+<img src="/images/libro mamá/WhatsApp Image 2020-05-28 at 18.24.26.jpeg" />
 
 # PRIMERA PARTE
 
@@ -22,7 +22,7 @@ Ella se ocupaba de la huerta y cultivo de flores... Florencia fue la primera que
 
 <hr/>
 Página 2:
-<img src="/assets/images/libro mamá/WhatsApp Image 2020-05-28 at 18.25.02.jpeg" />
+<img src="/images/libro mamá/WhatsApp Image 2020-05-28 at 18.25.02.jpeg" />
 
 vino Osvaldo, otra niña que murió, Gerardo y Blanquita.
 
@@ -32,4 +32,4 @@ Cuando estaban más lejos tardaba un mes, con las carretas, en llear a zapala, d
 
 <hr/>
 Página 3:
-<img src="/assets/images/libro mamá/WhatsApp Image 2020-05-28 at 18.25.25.jpeg" />
+<img src="/images/libro mamá/WhatsApp Image 2020-05-28 at 18.25.25.jpeg" />
