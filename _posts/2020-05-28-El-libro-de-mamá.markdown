@@ -20,7 +20,7 @@ El nacimiento de los hijos fué difícil, no prosperaban vivos. El clima hostil 
 
 Ella se ocupaba de la huerta y cultivo de flores... Florencia fue la primera que sobrevivió, después
 
-<br/>
+<hr/>
 Página 2:
 <img src="assets/images/libro mamá/WhatsApp Image 2020-05-28 at 18.25.02.jpeg" />
 
@@ -30,6 +30,6 @@ Uno de los lugares que habitaron era Laguna Blanca, que tenía una laguna muy he
 
 Cuando estaban más lejos tardaba un mes, con las carretas, en llear a zapala, donde vendían los cueros, crines de caballo, plumas de aveztruz, y lana de ovejas, y compraban zapatos, telas, talegos de yerba mate, azúcar, café y manufacturas, muchas importadas, como té de ceylán, con el premio de tacitas de porcelana finita, llamada cáscara de huevo. Cuando habían comprado una determinada cantidad de ricoté, grasa bovina del frigorífico La Negra, que venía en latas con la imagen pintada de una sonriente africana
 
-<br/>
+<hr/>
 Página 3:
 <img src="assets/images/libro mamá/WhatsApp Image 2020-05-28 at 18.25.25.jpeg" />
