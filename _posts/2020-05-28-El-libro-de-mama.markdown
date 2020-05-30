@@ -222,4 +222,307 @@ Belarmina se negó. Hizo que le trajeran unas sábanas con las que envolvió la 
 
 Con aceite comestible y salmuera le limpió los intestinos que estaban expuestos y sucios con tierra, hasta que pudo colocarlos en su domicilio abdominal, cerrando la herida con costura de aguja e hilo de colchonero.
 
-La liberó de ls sábanas y la soltaron con peones que la contenían, Colocándola aislada de los otros animales. La curaba y la alimentaba diariamente.
+La liberó de ls sábanas y la soltaron con peones que la contenían, Colocándola aislada de los otros animales. La curaba y la alimentaba diariamente
+
+<hr/>
+Página 18:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.20.29.jpeg" />
+
+ella misma hasta que pudo levantarse y volver a andar.
+Las actividades de Belarmina se conocían entre los vecinos y aumentaban el merecido respeto de que
+gozaba...
+
+<hr/>
+Página 19:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.20.42.jpeg" />
+
+Florencia fue enviada a estudiar a Bahía Blanca, en el Colegio de María Auxiliadora, de la Orden de los
+Salesianos.
+
+Enfrente estaba el colegio de varones que era de Don Bosco, donde estudiaron los Sapag, conocidos
+políticos de Neuquén.
+
+Ella recordaba su paso por este colegio donde estaba pupila, como una época divertida y alegre.
+
+Las camitas de las niñas estaban distribuidas en fila a cada lado del dormitorio parecido a un cuartel y frente a las dos puertas de salida dormía una monja.
+
+A la más intolerante le habían hecho la broma de colocarle sal de fruta en la bacinilla para reír a más no poder cuando ella la usó y se asustó con la reverberación de su espuma.
+
+Otras monjitas eran cariñosas y queridas; interactuaban con ellas y les enseñaban labores y juegos de salón, acertijos, etc.
+
+<hr/>
+Página 20:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.20.59.jpeg" />
+
+La monja que les enseñaba a tocar el piano se dio cuenta de que Florencia debía acercarse demasiado
+a la partitura para reconocer las notas.
+
+La llevaron al oculista y le pusieron los primeros anteojos de gruesos cristales, que por coquetería a
+veces no usaba...
+
+La amiga más querida, que conoció en el colegio, era Julia Constanzo.
+Su familia, de origen italiano, tenía una chacra importante en Choele-Choel, donde fue invitada a pasar
+unas vacaciones.
+
+El padre las hacía bajar y subir cantando del sótano cuando iban a buscar frutas secas, confituras o
+dulces, para asegurarse que no comieran dulces antes del almuerzo en el trayecto. 
+
+<hr/>
+Página 21:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.21.26.jpeg" />
+
+Paseaban en auto con los hermanos varones de Julia y recorrían el río en botes.
+
+Se hacían conservas y escabeches que guardaban en el sótano. 
+
+También vino, chorizos y jamones.
+
+Estando en el colegio fue cuando Julia "se hizo señorita" como decían cuando aparecía la menorrea.
+
+La primera que lo supo fue Florencia. Las monjas se enteraron después y la novedad ya había sido
+solucionada. La ayuda de su amiga vino como respuesta a su confianza.
+
+En los desayunos y meriendas consumían pan casero, manteca y mermeladas
+
+<hr/>
+Página 22:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.21.36.jpeg" />
+
+perfumadas, todos hechos allí.
+
+En los almuerzos y cenas familiares la sobremesa era de rigor y a veces había juegos de cartas o
+lotería.
+
+Las guitarreadas y baile se producían los sábados o domingos, cuando no había excursiones.
+
+El paisaje parecía vivir en la memoria de Florencia, cuando fue mayor.
+
+Los manzanos de la zona, naranjos, cerezos.
+
+Realmente un vergel, un paraíso.
+
+<hr/>
+Página 23:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.21.53.jpeg" />
+
+Los diferentes verdes y los arboles frutas de la isla de Choele-Choel nunca fueron olvidados por
+Florencia y ellas se comunicaron por carta durante mucho tiempo después de que Florencia tuvo que dejar el colegio.
+
+<hr/>
+Página 24:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.22.08.jpeg" />
+
+## III Episodio
+
+“Los hombres de mi familia morían jóvenes...”
+
+Sabino Vistoso no había cumplido 50 años. Tuvo una neumonía de fatal desenlace.
+
+Dejaba a Belarmina con 4 hijos: Florencia, la mayor, la rubia de la familia, tez blanca de azucena,
+
+Osvaldo, moreno y con cara de boxeador.
+
+Gerardo, firme en sus convicciones y recitador de poesía gauchesca y guitarrero en los fogones.
+
+La pequeña era Blanquita, tez morena y cabello renegrido.
+
+Florencia contaba que había sido hamacada en una cunita de estilo indígena (chigua) que colgaba del techo en la vivienda
+
+<hr/>
+Página 25:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.22.27.jpeg" />
+
+
+y cuando alguien pasaba cerca la tocaba suavemente, hamacándola.
+
+Tal vez no hubiera querido ese recuerdo? Ella, que cuando murió dejó un pequeño departamento en Recoleta, que había comprado con los ahorros de su trabajo de maestra especial.
+
+Pero aquella familia sentía orgullo de darle utilidad a la chigua, cunita ancestralmente usada por los
+lugareños, y las matras, pesadas mantas tejidas en telar de hermosos colores o bordadas por las
+mismas muchachas habitantes de la zona, sin ningún ánimo de desvalorizar o discriminar nada, sino
+viviendo con integración y sabiduría.
+
+<hr/>
+Página 26:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.22.33.jpeg" />
+
+El ingeniero era joven, alegre y fiestero.
+
+En los bailes del Club Social había conocido a Florencia. Era atildado y diferente de la gente del lugar.
+Formaba parte del staff de trabajo del Campamento de Plaza Huincul.
+
+Comenzaron a salir en la voiturette para hacer paseos en los alrededores.
+
+Ella cuidaba su peinado con peinetas que dejaban ondas, como era moda en aquellos años.
+
+Él tomaba hermosas fotografías en sepia. Ella aparecía sentada en un tronco, teniendo en su falda dos
+corderitos recién nacidos blancos con el fondo 
+
+<hr/>
+Página 27:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.22.44.jpeg" />
+
+no se veía cosa alguna hasta el infinito.
+
+En otras ocasiones con vestido negro de fiesta y un mantón de manila sobre los hombros
+
+Los paseos eran frecuentes algunas veces con otros jovenes compartian simpáticas celebraciones por fechas importantes para con alguno en particular...
+
+En la cabeza inexperta de Florencia la ilusión y la esperanza crecieron hasta que se enamoró perdidamente de él.
+
+Cuando supo que estaba embarazada se atendió
+
+Él debía volver a buenos aires.
+
+... onto. Belarmina no sabía.
+
+    - Voy a ir con vos
+    - No puede ser - Seguramente vendré a buscarte más adelante
+
+<hr/>
+Página 27:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.22.53.jpeg" />
+
+    - No me voy a quedar sola en estos momentos...
+    - Estoy dispuesta a acompañarte, y allá resolveremos lo que podemos hacer
+    - Bueno, dijo con un dejo de inseguridad en la voz
+
+Como buen petimetre frente a las cosas importantes de la vida la asaltaba una rara perplejidad. Se veía protagonizando algo para lo que no estaba preparado y en su cobardía no había lugar para determinaciones que veía demasiado difíciles.
+
+Pensaba en su familia que siempre había tenido pretensiones de estar colocados en buena posición social, y si aceptarían este noviazgo originado en el lejano Neuquén.
+
+<hr/>
+Página 28:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.23.02.jpeg" />
+
+¡Y con un embarazo!
+
+Ella era el motor que impulsaba los acontecimientos.
+
+La pasó a buscar una mañana. Ella había preparado una valija y una capellina, que se usaba.
+
+<hr/>
+Página 29:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.23.09.jpeg" />
+
+El viaje a Buenos Aires en la voiturette por los caminos que no eran para nada buenas rutas fue azaroso. Llevaban otro pasajero. Un amigo de Darío.
+
+No paraban casi- Al llegar a Tandil, Darío quiso dejar a Florencia. El amigo intercedió con indignación. Florencia no entendía este cambio. Nunca hubiera creído verdad tan cruel pensamiento. Siguieron viaje hasta llegar a la capital y se separaron del amigo yendo los dos a una pensión cerca del Parque Lezama.
+
+Allí descansaron y comieron y Darío presa de un nerviosismo que ella no le conocía, le explicó que necesitaba adelantarse a ver a su familia para preparar el camino. Después vendría a buscarla.
+
+<hr/>
+Página 30:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.23.20.jpeg" />
+
+Florencia no vió más a Darío.
+
+Su desaparición fue total y permanente.
+
+Como si se hubiera desentendido de una carga molesta y que no le pertenecía para nada.
+
+El clima era gris en esos días, y una niebla parecía penetrar en los seres, y les impedía recorrer el camino de las certezas.
+
+La vida proseguía sin pausa empujando hacia adelante, sin intervención de nadie, los acontecimientos.
+
+<hr/>
+Página 31:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.23.29.jpeg" />
+
+Contando el dinero que tenía, que no era mucho, esperaba la vuelta del hombre que se fue presuroso para preparar la presentación en su flia.
+
+Florencia desconocía muchas cosas, pero imaginaba que no sería fácil que aceptaran su embarazo y viaje a Bs As con el hijo del ingeniero Darío Radaelly su novio en Plaza Huíncul.
+
+Estaba imbuída en un valor rayando con lo extraordinario.
+
+El, seguramente, hablaría con la flía vendría a buscarla y ella se acilalaría lo mejor posible. Sus estudios secundarios en María Auxiliadora de Bahía Blanca le daban cierta seguridad, había estudiado piano, bordados y 3 años para ser docente. Cierto que la muerte del padre interrumpió esos estudios, pero haría lo posible por
+
+<hr/>
+Página 32:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.23.42.jpeg" />
+
+No mostrarse indigna de su novio.
+
+Su arreglo personal era sobrio.
+
+No pensaba en otra cosa y las horas pasaban sin que hubiera noticias de Darío. No podía ser que quedara abandonada en ese lugar.
+
+La dueña de la pensión vino a esclarecer su incertidumbre.
+
+    - Bueno Sra, esta tarde tiene que dejar la habitación. No está pago nada más
+
+El informe vino frío e inapelable. No había comido nada. No sabía adonde buscar a Darío, a su flía y a nadie que pudiera acercarse. .. a su situación que empezó ... a percibir amenzantante.
+
+Mientras Juntaba sus cosas para salir de allí surgían de sus ojos ardientes lágrimas (continúa en...)
+
+<hr/>
+Página 33:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.23.51.jpeg" />
+
+Caminó sin ver, con su valijita hasta un banco del parque.
+
+Ese parque que fué predio de los Lezama, flía tradicional de Bs As, cuya casa solariega después se transformó en el Museo Histórico Nacional
+
+En la tarde de octubre jugueteaba el aire frío de la anochecer.
+
+Veía pasar, indiferentes y apurados hombres y mujeres. Algunos llevaban niños.
+
+Las lágrimas por sus mejillas caían y se secaban sin que ella se diera cuenta.
+
+Sus manos temblorosas de frío y de miedo se entrelazaban con nerviosidad...
+
+<hr/>
+Página 34:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.07.jpeg" />
+
+<hr/>
+Página 35:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.14.jpeg" />
+
+Miraba en el suelo como un encaje de sombra y luz, que se movía con el viento de la noche.
+
+Las hojas dejaban pasar la fosforescencia de las farolas del parque y todo el paisaje luminoso cambiaba de lugar.
+
+Una profunda congoja atravesaba su garganta. Nunca imaginó una situación así.
+
+Rodeada por una soledad real, impenetrable. Ella con su hijo en el vientre. ¿Cómo iba a proteger a ese hijo si ella misma era la imagen de la desprotección?
+
+Lágrimas heladas caían ahora desde su alma y los sollozos le permitían deshahogar su pena.
+
+Sentada en un banco del Parque Lezama con una sencilla valija acomodada a su lado
+
+<hr/>
+Página 36:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.22.jpeg" />
+
+sin adornos. Atraía las miradas por su indefensión.
+
+Con paso tranquilo se acercaba un trabajador que la miró con preocupación. Semicano, de mediana edad.
+
+Con respeto se paró a su lado y le preguntó.
+
+    - Que le pasa? La puedo ayudar?
+    - No - dijo ella -  no creo que pueda
+    - Pero no me puede decir lo que le pasa? No tenga miedo, soy hombre 
+      serio, de familia.
+
+<hr/>
+Página 37:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.28.jpeg" />
+
+    - Ha perdido algo?
+
+Como una tormenta que se transformaba en lluvia mansa le contó todo.
+
+La huida de la casa de su madre siguiendo a su amor... El viaje de tantos Km desde Neuquen a Bs As.
+
+La pensión vecina al parque donde él la dejó, sabiendo que estaba embarazada, sin dinero, casi sin fuerzas, donde la echaron a la calle alegando que la estadía estaba paga hasta ese día...
+
+La sorpresa del desconocido dió lugar a buenas palabras, queriendo tranquilizarla.
+
+Finalmente le dijo que debía consultar a su esposa, y si a esta le parecía bien al día siguiente a esa misma hora vendría a buscarla para
+
+<hr/>
+Página 38:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.48.jpeg" />
+
