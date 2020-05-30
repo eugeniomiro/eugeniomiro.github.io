@@ -526,3 +526,146 @@ Finalmente le dijo que debía consultar a su esposa, y si a esta le parecía bie
 Página 38:  
 <img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.48.jpeg" />
 
+Los niños se habían acostado.
+
+La mujer sirvió enseguida caldo caliente y comida que había quedado de la cena.
+
+La recién llegada contaba nuevamente con creciente confianza, lo ocurrido.
+
+En la sencilla pero limpia vivienda había en el comedor una cama turca, que servía cuando los hermanos de Arminda venían de Salta, o para que pasara la noche algún demorado. De día se sentaban los chicos en ella.
+
+<hr/>
+Página 39:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.24.56.jpeg" />
+
+    - Debo conseguir un trabajo - dijo Florencia -
+    - Yo estoy en una fábrica metalúrgica y no hay mujeres - dijo él
+    - Yo no conozco trabajos, por ahora en el servicio doméstico hay que
+      llevar las propias sábanas y ropas de cama... dijo Arminda
+    
+Quedó pensativa y luego dijo:
+
+    - Me parece que lo primero que tenés que hacer es una carta a tu 
+      madre contándole lo ocurrido. Estará preocupada sin saber lo que 
+      pasa y merece que le digas todo esto, sin omitir nada.
+
+Con angustia y esperanza Florencia escribió
+
+A vuelta de correo recibió una generosa respuesta de Belarmina, que 
+
+<hr/>
+Página 40:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.04.jpeg" />
+
+incluía un giro postal. La madre no hizo recriminaciones de ninguna clase. Agrega que Blanca, la hermana más chica, que siempre había querido estudiar en Bs As, podría venir a vivir con ella, y habría allí una casa familiar donde podrían llegar los hermanos Osvaldo o Gerardo cuando viajaran a capital.
+
+Consiguieron en alquiler una vivienda en Flores, calle Membrillar adonde nací Yo.
+
+Llegó Blanca justo para inscribirse en la Escuela Profesional, donde aprendería economía doméstica, Bordado, Costura, habilidades pragmáticas, sin tanto vuelo intelectual, pero mucho práctico que a ella le gustaba, aunque no lo pensaba sino como para ser Profesora de actividades prácticas
+
+<hr/>
+Página 41:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.12.jpeg" />
+
+Después conoció una compañera, que vivía con su madrina, en olivos, donde la señora tenía una pensión con pileta, muy lindas habitaciones y clientela con buen pasar, elegantes, profesionales otros estudiantes, donde vivió muchos años llamándola ella también "madrina", porque llegó a encariñarse mucho.
+
+<hr/>
+Página 42:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.19.jpeg" />
+
+<hr/>
+Página 43:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.25.jpeg" />
+
+El embarazo crecía sin ninguna dificultad. 
+
+Florencia había congelado su dolor.
+
+Donde compraban los remedios, el farmaceutico era joven, de tranquilos ojos verdes y maneras suaves.
+
+Atendía consultas de los vecinos, colocaba inyecciones, elaboraba fórmulas magistrales y aconsejaba.
+
+Florencia le consultó si conocía alguna partera, para atenderla y él le presentó una.
+
+Pronto Alberto venía a tomar mate antes de abrir la farmacia, a la tarde.
+
+Sus padres eran italianos y tenía 8 hermanos mayores.
+
+Había tenido farmacia en Santa Fé, a medias con su hermana
+
+<hr/>
+Página 44:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.34.jpeg" />
+
+Rosa, primera mujer farmacéutica por esos años.
+
+Cuando Yo nací Alberto era de la familia.
+
+Su carácter moderado creaba a su alrededor un aura de respeto.
+
+Nació entre mi madre y él un amor sincero y fueron a vivir en una casa de inquilinato en la calle Danel (?).
+
+<hr/>
+Página 45:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.39.jpeg" />
+
+Alberto y Florencia no necesitaron recibir más dinero del campo.
+
+Él me traía unos hermosos caramelos que simulaban pequeñas bananas y frutas rojas que colocaba en el trinchante, visibles pero inalcanzables, y me los daba uno por uno después de la comida. Ya tendría yo 2 o 3 años.
+
+Mi madre me llevó a Neuquén para que me conociera mi abuela.
+
+Fué la última vez que queamos a dormir en la casa del campo.
+
+Belarmina había retado a un capataz porque se había lastimado un caballo. A la noche el hombre se emborachó y parado delante de la puerta principal de la casona nos amenazaba diciendo que nos
+
+<hr/>
+Página 46:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.48.jpeg" />
+
+iba a matar.
+
+Belarmina tomó la decisión.
+
+Por una ventana del fondo salimos sin hacer ruido. Eramos 5 mujeres yo, en brazos de Corina, mi niñera, que usaba un guardapolvo escolar blanco, la mujer que hacía las tareas domésticas, Belarmina y Florencia.
+
+Frío, Viento y olor a campo en el camino atravesando la oscuridad presurosas y atentas sin contar la opresión del susto que nos acompañaba, llegamos a la casa de unos vecinos, que no era muy cerca.
+
+<hr/>
+Página 47:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.25.56.jpeg" />
+
+El tiempo transcurría y mi abuela sentía disminuídas sus fuerzas para manejar las tareas y aconteceres que se relacionaban con capataces y peones, al no estar ya Sabino, las inseguridad se hacía palpable y dejó de creer en el campo como proveedor del dinero para el sustento familiar.
+
+Fue a vivir con sus hijos a Plaza Huíncul, en la casa del pueblo, que tenía manzanos y durazneros y plantas con flores perfumadas y un estilo colonial, pintada de blanco con varias habitaciones grandes y cómodas.
+
+Los sillones se cubrían con "matras" tejidas en telar, de colores
+
+<hr/>
+Página 48:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.26.09.jpeg" />
+
+vivos, confeccionadas en la zona y carpetas tejidas a crochet por ella, cubrían las mesas. 
+
+Los manteles estaban bordados con hilos de color, a máquina. Labores que había hecho Florencia en la escuela.
+
+Y se ocupó de ofrecer pensión para comer con almuerzos y cenas. 
+
+Ingenieros, técnicos, administrativos, Señores que estaban en Plaza Huíncul por su trabajo y preferían comida casera y cuidado ambiente.
+
+La abuela tenía  una cocinera y un empleado que servía las mesas del comedor y ayudaba a la cocinera.
+
+Belarmina llevaba alrededor del cuello una cinta de terciopelo negro y de este color era su ropa después de la muerte de Sabino.
+
+<hr/>
+Página 49:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.26.13.jpeg" />
+
+Leía siempre los diarios y escuchaba la radio, con sus telenovelas y las noticias.
+
+Ella tenía un sillón especial de mimbre parecido al Rattan, cómodo, con un almohadón de colores y flecos, de estilo sureño y una perrita blanca que se llamaba Tula que no se movía de su lado.
+
+<hr/>
+Página 50:  
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.26.22.jpeg" />
+
