@@ -360,7 +360,7 @@ corderitos recién nacidos blancos con el fondo
 
 <hr/>
 Página 27:  
-<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.22.44.jpeg" />
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 11.53.32.jpeg" />
 
 no se veía cosa alguna hasta el infinito.
 
@@ -368,13 +368,11 @@ En otras ocasiones con vestido negro de fiesta y un mantón de manila sobre los 
 
 Los paseos eran frecuentes algunas veces con otros jovenes compartian simpáticas celebraciones por fechas importantes para con alguno en particular...
 
-En la cabeza inexperta de Florencia la ilusión y la esperanza crecieron hasta que se enamoró perdidamente de él.
+En la cabeza inexperta de Florencia la ilusión y la esperanza crecieron hasta que se enamoró perdídamente de él.
 
-Cuando supo que estaba embarazada se atendió
+Cuando supo que estaba embarazada se aturdió
 
-Él debía volver a buenos aires.
-
-... onto. Belarmina no sabía.
+Él debía volver a Bs As. pronto. Belarmina no sabía.
 
     - Voy a ir con vos
     - No puede ser - Seguramente vendré a buscarte más adelante
@@ -643,7 +641,7 @@ Los sillones se cubrían con "matras" tejidas en telar, de colores
 
 <hr/>
 Página 48:  
-<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 08.26.09.jpeg" />
+<img src="/images/libro mama/WhatsApp Image 2020-05-30 at 11.50.26.jpeg" />
 
 vivos, confeccionadas en la zona y carpetas tejidas a crochet por ella, cubrían las mesas. 
 
